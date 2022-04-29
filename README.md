@@ -8,3 +8,4 @@ and that is why I chose it
 # Totaly relevent stuff that you should definatly read and not a wast of time. #
 
 My wife asked me to go get 6 cans of Sprite from the grocery store. I realized when I got home that I had picked 7 up.
+No one laughed at my cola bottle joke. I hear they thought it was uncanny.
